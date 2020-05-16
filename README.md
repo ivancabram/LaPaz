@@ -1,1 +1,1 @@
-# Planeación del Curso de Informática para la Preparatoria La Paz
+# Planeación del Curso de Informática
